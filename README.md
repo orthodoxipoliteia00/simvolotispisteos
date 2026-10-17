@@ -1,0 +1,2 @@
+# simvolotispisteos
+Σύμβολο Της Πίστεως
